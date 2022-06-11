@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hmacharja
 - 👀 I’m interested in learning everything that is new and exciting and world changing 
 - 🌱 I’m currently learning point Network 
-- 💞️ I’m looking to collaborate on point Network and web 3.0
+- 💞️ I’m looking to collaborate on point Network and new crypto currency called pi network 
 - 📫 reach me https://t.me/hmacharja
 
 <!---
